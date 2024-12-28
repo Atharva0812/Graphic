@@ -1,3 +1,0 @@
-# Graphic
-fxfxdsfdxf
-Atharva 
